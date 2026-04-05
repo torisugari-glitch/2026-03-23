@@ -17,3 +17,8 @@ RPA　robotic process automation
 #2026/4/4(土)
 
 【SPI】非言語　推論３/６、順列４/１２
+
+#2026/4/5(日)
+
+【就活】SPI試験前復習  SPI試験  
+エントリー、企業選定  
