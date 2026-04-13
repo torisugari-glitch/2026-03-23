@@ -22,3 +22,7 @@ RPA　robotic process automation
 
 【就活】SPI試験前復習  SPI試験  
 エントリー、企業選定  
+
+#2026/4/13(月)
+
+【就活】企業選定  
