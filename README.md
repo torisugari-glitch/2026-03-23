@@ -26,3 +26,8 @@ RPA　robotic process automation
 #2026/4/13(月)
 
 【就活】企業選定  
+
+#2026/4/14(火)
+
+【就活】企業選定  
+
